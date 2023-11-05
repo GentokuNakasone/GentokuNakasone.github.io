@@ -1,3 +1,3 @@
-# takanek07.github.io
+# GentokuNakasone.github.io
 
-https://takanek07.github.io
+https://GentokuNakaone.github.io
